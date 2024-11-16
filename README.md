@@ -28,6 +28,8 @@ PirateVIP PreOrder (500R$) <br />
 Professional Hitter Package (450R$) <br />
 ![image](https://github.com/user-attachments/assets/4e52bce7-28d1-4bf5-99be-4f66b6054b17) <br />
 VIP Logger (450R$) <br />
-![image](https://github.com/user-attachments/assets/43b80a71-0471-4130-9768-1a2a6fad8be4)
+![image](https://github.com/user-attachments/assets/43b80a71-0471-4130-9768-1a2a6fad8be4) <br />
+Professional Hitter Package (450R$) <br />
+![image](https://github.com/user-attachments/assets/68586c35-a25c-4e03-9e5a-5a58cf5947fa) <br />
 
 
