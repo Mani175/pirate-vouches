@@ -34,6 +34,7 @@ Professional Hitter Package (450R$) <br />
 ![image](https://github.com/user-attachments/assets/68586c35-a25c-4e03-9e5a-5a58cf5947fa) <br />
 VIP Logger (450R$) <br />
 ![image](https://github.com/user-attachments/assets/f3feb5f5-51fa-468a-a4ad-bd079533e428) <br />
-
+Professional Hitter Package (450R$) <br />
+![image](https://github.com/user-attachments/assets/76a967ec-20b5-4a42-a41d-6b92a06917dd) <br />
 
 
